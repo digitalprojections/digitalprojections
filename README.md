@@ -1,0 +1,5 @@
+- 👋 Salom! Men Ahmad Fuzal, komputer wa web dasturlarchisiman. Mustaqil o`zim o`rganganman.
+- 👀 Menga bir narsa qiziq: jannatda bundan ham qiziqroq yaratuvchilik bilan shughullanarmikinmiz?
+- 🌱 Hozirda project managerlikni organyapman
+- 💞️ Unityda bir qiziqarli va foydali oyin yozishni xoxlovchilar bormi?
+- 📫 Savol va takliflar: ahmadjangroup@gmail.com
